@@ -1,5 +1,5 @@
 - Hi, I’m Merijn
-- I am currently a first year student
+- I am currently a secondyear student
 - Please have patience with me, I have autism
 
 <!---
